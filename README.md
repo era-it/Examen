@@ -27,3 +27,5 @@
 
 <img width="903" alt="Captura de pantalla 2024-12-04 a la(s) 10 58 03 a  m" src="https://github.com/user-attachments/assets/c3a3ab39-a78f-4cdc-9f0f-516cc8ea301c">
 
+<img width="472" alt="Captura de pantalla 2024-12-04 a la(s) 10 59 31 a  m" src="https://github.com/user-attachments/assets/79c65a8a-23ce-4ba7-8c11-1fcc1b6dbf7c">
+
