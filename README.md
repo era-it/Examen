@@ -23,3 +23,4 @@
 
 <img width="214" alt="Captura de pantalla 2024-12-04 a la(s) 10 32 55 a  m" src="https://github.com/user-attachments/assets/35c0bf65-f561-40d6-a7d7-041b1be354d2">
 ![INVITACIÓN IMPRESA MEDIA CARTA_compressed_page-0001](https://github.com/user-attachments/assets/48521d92-0b66-4192-90ef-58966c8fc09f)
+<img width="665" alt="Captura de pantalla 2024-12-04 a la(s) 10 47 41 a  m" src="https://github.com/user-attachments/assets/a1768745-9ff3-4db3-90f6-300bbed2cd89">
