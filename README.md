@@ -20,4 +20,5 @@
 ![AMAC_PENDON_compressed_compressed_page-0001](https://github.com/user-attachments/assets/60652561-41de-4498-b2cc-c295c81d830d)
 <img width="500" alt="AFICHES" src="https://github.com/user-attachments/assets/871fd51d-a8b6-4692-942c-78021f1cd93c">
 <img width="1182" alt="AFICHES-3" src="https://github.com/user-attachments/assets/2159e30f-0cc1-4e89-a5e7-7cd81e2eda65">
-<img width="415" alt="Captura de pantalla 2024-12-04 a la(s) 10 31 43 a  m" src="https://github.com/user-attachments/assets/80e447e0-795d-4aac-bed9-5c56ce64e07b">
+
+<img width="214" alt="Captura de pantalla 2024-12-04 a la(s) 10 32 55 a  m" src="https://github.com/user-attachments/assets/35c0bf65-f561-40d6-a7d7-041b1be354d2">
